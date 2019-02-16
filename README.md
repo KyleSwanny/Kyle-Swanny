@@ -1,2 +1,0 @@
-# Kyle-Swanny
-Learning,
